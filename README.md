@@ -9,7 +9,7 @@
 
 <a href="https://74mao.com/">74猫传送门</a>
 
-<a href="https://cg08-1.pages.dev/"海角吃瓜</a>
+<a href="https://cg08-1.pages.dev/">海角吃瓜</a>
 
 <a href="https://pi02-02.pages.dev/">每日吃瓜</a>
 
